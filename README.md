@@ -1,1 +1,1 @@
-tarekkhalifaMEDPharma.github.io
+tarekkhalifa.github.io
